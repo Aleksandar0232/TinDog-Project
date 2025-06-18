@@ -1,5 +1,4 @@
 
-Absolutely! Here's a more playful and fun version:
 
 🐶 Welcome to TinDog! 🐶
 
